@@ -13,7 +13,7 @@ Top Wayfairl coupon codes for the month of April 2025:
 
 | Discount offer |  Coupon Code / Link | Valid Until |
 | -------------- |--------------------- | ----------- |
-| Up to 80% Sale on Selective Items Item list | Veiw Sale | On Going |
+| Up to 80% Sale on Selective Items Item list | Veiw Sale SALE80% apply code to activate deal | On Going |
 | Wayfair 10% off On first order          | EMAIL10 (Signup required to activate deal | Limited time use |
 | $40 off with credit card signup | Auto applied on checkout | for new users only |
 | Way fair Discount code 20% off | Avaliable during seasonal sales | Selected items only |
