@@ -4,6 +4,8 @@ Looking to upgrade your home without burning a hole in your wallet?? with a wayf
 you can save upto 80% or more on furniture, home decor, kitchenware, and more. whether you planning to 
 remodel or planing to fill new place, we have got all the latest wayfair promo codes, seasonal deals
 and smart saving tips to help you shop smarter.
+![image](https://github.com/user-attachments/assets/86614442-54d7-4b14-b7bd-6ae734aaa045)
+
 
 This simple guide give you the latest wayfair coupon codes, deals and easy tips to save more money
 on your favorate home items like furniture, rugs and outdorr sets and more.
@@ -39,6 +41,9 @@ If it's your first time shopping at wayfair then, you are luckey, you can get th
 
 ## How to use A wayfair promocode?
 
+![image](https://github.com/user-attachments/assets/848c9c7c-4f2c-4c74-9c3b-3f36d8d6d7f4)
+
+
 using a wayfair code is very easy process, just follow the steps given below:
 
 1. Add the items you want in your cart.
@@ -60,6 +65,9 @@ want to save more on your orders??? shop duiring these times:
 -------------
 
 ## where to find legit Real wayfair coupons:
+
+![image](https://github.com/user-attachments/assets/ac0f488d-bcbd-4878-905a-650c15834795)
+
 
 Some people look on forums like wayfair coupon reddit, but not all codes there work, here are some working sources to check:
 
